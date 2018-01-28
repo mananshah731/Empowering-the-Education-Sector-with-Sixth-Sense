@@ -1,1 +1,0 @@
-# Empowering-the-Education-Sector-with-Sixth-Sense
